@@ -1,13 +1,5 @@
 3.4
-![Screenshot (14)](https://user-images.githubusercontent.com/109128770/178953643-ee37225f-051d-4579-bf39-ba93a9ead390.png)
 
-
-
-![Screenshot (15)](https://user-images.githubusercontent.com/109128770/178953659-eb659794-f3cc-44f6-8c21-b642941ae4f3.png)
-
-
-
-![Screenshot (16)](https://user-images.githubusercontent.com/109128770/178953682-37fb0600-36df-4c7f-9f6b-5b88212f21af.png)
 
 
 
